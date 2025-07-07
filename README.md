@@ -10,7 +10,7 @@
 
       ❥︎ 𝕄𝕐 ℍ𝕆𝔹𝔹𝕀𝔼𝕊/𝕋𝔸𝕃𝔼ℕ𝕋𝕊 :
 
- first of all, i really like acting the most, i have experience acting for years. And i like arts and drawing. And i also play the violin instrument.
+ first of all, i really like acting the most, i have experience in acting for years. And i like arts and drawing. And i also play the violin instrument.
 
 𝘿𝙉𝙄 𝙄𝙁 𝙔𝙊𝙐...
 - if you hate YIM SIWAN just because of his character in squid game.
